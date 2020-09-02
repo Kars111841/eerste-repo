@@ -1,2 +1,2 @@
-# eerste-repo
-lmao
+#Is dit hoe dit werkt ofzo 
+
